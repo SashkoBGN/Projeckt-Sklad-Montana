@@ -1,1 +1,1 @@
-# Projeckt-Sklad-Montana
+# Produckt for DigitalMontana-Sashko
